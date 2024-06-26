@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @_fear_less_thaqr_
-- 👀 I’m interested in programinhg
+- 👀 I’m interested in programing
 - 🌱 I’m currently learning github
 - 💞️ I’m looking to collaborate on instagram
 - 📫 How to reach me - you con search me on instagram
